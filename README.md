@@ -1,1 +1,1 @@
-https://sometimes-announcement-design-sail.trycloudflare.com
+https://suite-reduction-assessing-queries.trycloudflare.com
